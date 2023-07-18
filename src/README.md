@@ -1,7 +1,5 @@
 # Introduction
 
-Chapter 1: Introduction
-
 Welcome to "The Art of Holistic Thinking: Techniques for Considering the Whole Picture and Recognizing Interconnections." In this book, we will embark on a journey to explore the power of holistic thinking and its practical applications in our daily lives.
 
 Introduction
