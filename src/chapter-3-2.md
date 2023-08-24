@@ -1,5 +1,3 @@
-How Systems Thinking Relates to Holistic Thinking
-============================================================
 
 In this chapter, we will explore the relationship between systems thinking and holistic thinking and how these two approaches complement each other in understanding complex problems and interconnections.
 

@@ -1,5 +1,3 @@
-Addressing Unintended Consequences
-==============================================
 
 In this chapter, we will explore the importance of addressing unintended consequences in holistic thinking. By anticipating and addressing the potential negative impacts of our decisions, we can make more informed and responsible choices.
 

@@ -1,5 +1,3 @@
-Leading Teams with a Holistic Mindset
-================================================
 
 In this chapter, we will explore the concept of leading teams with a holistic mindset. By embracing a holistic approach to leadership, managers can foster a collaborative and interconnected team dynamic, enhance problem-solving abilities, and create positive organizational outcomes.
 

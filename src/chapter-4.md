@@ -1,5 +1,3 @@
-Chapter 3: Mindfulness and Awareness
-====================================
 
 Mindfulness and awareness are key components of holistic thinking. By developing awareness of our surroundings, engaging in mindfulness practices, and cultivating a holistic mindset, we can better understand the interconnections between different elements and make more informed and compassionate decisions. In this chapter, we will explore techniques for mindfulness and awareness.
 

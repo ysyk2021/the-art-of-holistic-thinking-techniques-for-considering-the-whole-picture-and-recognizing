@@ -1,5 +1,3 @@
-Applying Systems Thinking to Complex Problems
-========================================================
 
 Systems thinking is a powerful approach for understanding and addressing complex problems that arise in various domains. This chapter explores the application of systems thinking techniques in tackling complex challenges, emphasizing the importance of considering the whole picture and recognizing interconnections.
 

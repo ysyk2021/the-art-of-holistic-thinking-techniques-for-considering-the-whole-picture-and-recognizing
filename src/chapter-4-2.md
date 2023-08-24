@@ -1,5 +1,3 @@
-Engaging in Mindfulness Practices
-============================================
 
 In this chapter, we explore the significance of mindfulness in holistic thinking and provide techniques for engaging in mindfulness practices. We delve into the benefits of incorporating mindfulness into our lives and discuss how it can enhance our ability to consider the whole picture and recognize interconnections.
 

@@ -1,5 +1,3 @@
-Chapter 8: Holistic Leadership
-==============================
 
 Holistic leadership involves recognizing the interconnections between different elements of an organization and taking a comprehensive approach to leadership. In this chapter, we will explore the importance of holistic leadership and provide guidance on how to practice it effectively.
 

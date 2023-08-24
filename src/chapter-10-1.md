@@ -1,5 +1,3 @@
-Summary of Key Points
-=================================
 
 In this book, we have explored the art of holistic thinking and the techniques that can help us consider the whole picture and recognize interconnections between different elements. Here are some key points to remember:
 

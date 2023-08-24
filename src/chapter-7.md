@@ -1,5 +1,3 @@
-Chapter 6: Holistic Decision-Making
-===================================
 
 Holistic decision-making involves considering multiple factors and perspectives when making decisions. It means taking a broad perspective and recognizing the potential impacts of decisions on various aspects of a situation or system. In this chapter, we will explore the importance of holistic decision-making and provide guidance on how to do so effectively.
 

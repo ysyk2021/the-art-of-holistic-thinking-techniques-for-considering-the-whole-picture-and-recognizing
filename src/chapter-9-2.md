@@ -1,5 +1,3 @@
-Creating a Culture of Holistic Thinking within Organizations
-=======================================================================
 
 In this chapter, we will explore how organizations can foster a culture of holistic thinking. By embracing holistic thinking techniques and encouraging a systems mindset, companies can promote a deeper understanding of interconnections, enhance problem-solving abilities, and drive innovation.
 
