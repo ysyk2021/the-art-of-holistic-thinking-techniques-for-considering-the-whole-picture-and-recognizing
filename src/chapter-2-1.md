@@ -1,5 +1,4 @@
-Chapter: What is Holistic Thinking?
-===================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we delve into the concept of holistic thinking and explore how it offers a comprehensive approach to understanding complex systems, considering the whole picture, and recognizing interconnections. By gaining an understanding of holistic thinking, individuals can develop a broader perspective and make more informed decisions in various aspects of their lives.
 
